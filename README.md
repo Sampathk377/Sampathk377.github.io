@@ -1,2 +1,2 @@
-# Sampathk377.github.io
+# SAMPATH PERADY
 ## Welcome to sampath Website 
